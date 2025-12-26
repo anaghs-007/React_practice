@@ -1,0 +1,1 @@
+Discussion related mini project subjected primarily to practice work, not an actual project
